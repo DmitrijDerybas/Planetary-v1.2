@@ -1,1 +1,1 @@
-# Planetary-v1.2
+Dmytro Derybas
